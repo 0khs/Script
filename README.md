@@ -1,0 +1,2 @@
+# Script
+life is roblox
